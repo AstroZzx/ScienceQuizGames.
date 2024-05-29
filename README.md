@@ -1,9 +1,9 @@
 This Is My First Attempt At Making A Games Site/List. You can use it At Your own risk, please don't get caught, and most importantly don't send through email it is monitored and will be taken down.
-If The Link Does Not Work I will Put THem Here
+If The Link Does Not Work I will Put it here
 
 Science Practice Quiz MEE 2.7
 To Study For Science 
-CAMERON LAWS
+AstroZzx
 
 This Is A Hidden way To Play Games (For Educational Purposes Only) (Do Your Work Please)
 Below Is The First Update Of ScienceQuizGames
