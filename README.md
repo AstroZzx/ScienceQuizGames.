@@ -72,4 +72,4 @@ Question Type
 https://yut.miyako.pro/
 
 Sincerely AstroZzx
-<img "/>![image](https://github.com/AstroZzx/ScienceQuizGames./assets/149184220/8c6537a4-a3c2-4281-811d-24a7bec47362)
+![image](https://github.com/AstroZzx/ScienceQuizGames./assets/149184220/8c6537a4-a3c2-4281-811d-24a7bec47362)
