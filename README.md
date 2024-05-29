@@ -72,4 +72,4 @@ Question Type
 https://yut.miyako.pro/
 
 Sincerely AstroZzx
-<img src="https://i.dailymail.co.uk/i/pix/2016/07/28/06/36A8DA3F00000578-3711983-image-m-32_1469683276770.jpg" alt="Adorable video shows a bunny rabbit enjoying a banana | Daily Mail Online"/>![image](https://github.com/AstroZzx/ScienceQuizGames./assets/149184220/8c6537a4-a3c2-4281-811d-24a7bec47362)
+<img "/>![image](https://github.com/AstroZzx/ScienceQuizGames./assets/149184220/8c6537a4-a3c2-4281-811d-24a7bec47362)
