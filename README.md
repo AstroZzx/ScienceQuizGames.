@@ -66,7 +66,7 @@ Games
 https://purchase.cars.garagesport.ch/
 Games/Proxy/Cheats
 https://dashabunga.site.com.bornsecret.com/
-Games about.blog.steveharrop.co.uk
+Games (https://about.blog.steveharrop.co.uk/)
 Games/Proxy/Emulator/Apps
 Question Type
 https://yut.miyako.pro/
