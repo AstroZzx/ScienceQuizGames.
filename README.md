@@ -22,7 +22,7 @@ AI
 https://deepai.org/chat
 
 AI
-chatgpt.org
+https://chatgpt.org
 
 YouTube Unblocker (Might Not Work)
 Wea-f.github.io/Norepted/
