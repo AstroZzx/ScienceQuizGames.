@@ -110,6 +110,23 @@ https://kennysgames.on.fleek.co/
 A glitchy proxy
 https://www.locabrowser.com/
 
+Games
+https://unblocked-games.s3.amazonaws.com/moto-x3m.html
+
+Games
+https://wordle2.io/moto-x3m-unblocked (you can click off of moto x3m)
+
+Games
+https://www.hoodamath.com/games
+
+Games
+https://www.mathnook.com/fungames/categories/arcade.html
+
+Games
+https://linktr.ee/classroom.x7.games
+
+
+
 It may not work on your computer/Chromebook but you can download games to Microsoft Edge if it lets you switch your browser to it I'll leave a link below to a game.
 
 https://microsoftedge.microsoft.com/addons/detail/slope-unblocked-game/ndcokkmfmiaecmndbpohaogmpmchfpkk?hl=cy-GB 
