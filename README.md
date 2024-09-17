@@ -101,7 +101,7 @@ Games
 Games/Proxy/Emulator/Apps
 https://yut.miyako.pro/
 
-NEW UPDATE BELOW!
+NEW UPDATE BELOW! I cleaned the list up and added a few things.
 
 Slope unblocked with other games
 https://slopeio.org/ 
