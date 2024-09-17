@@ -23,7 +23,7 @@ AI
 https://chatgpt.org
 
 YouTube Unblocker (Might Not Work)
-Wea-f.github.io/Norepted/
+https://Wea-f.github.io/Norepted/
 
 Link Finder/games (More Links)
 https://bio.link/sleepygames
