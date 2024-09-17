@@ -1,11 +1,12 @@
 This Is My First Attempt At Making A Games Site/List. You can use it At Your own risk, please don't get caught, and most importantly don't send through email it is monitored and will be taken down.
 If The Link Does Not Work I will Put it here
 
-Please credit ME if you fork!!!!!
 
 This Is A Hidden way To Play Games (For Educational Purposes Only) (Do Your Work Please)
 Below Is The First Update Of ScienceQuizGames
 Dont Send Through Email or Give Out To Much
+
+Please credit ME if you fork!!!!!
 
 It would be best if you read everything below because some sites won't work for you so you'll have to try many.
 
