@@ -70,6 +70,15 @@ Games (https://about.blog.steveharrop.co.uk/)
 Games/Proxy/Emulator/Apps
 Question Type
 https://yut.miyako.pro/
+NEW UPDATE BELOW!
+Slope unblocked with other games
+https://slopeio.org/ 
+Selenite-games-apps-bookmarklets
+https://kennysgames.on.fleek.co/
+A glitchy proxy
+https://www.locabrowser.com/
+It may not work on your computer/Chromebook but you can download games to Microsoft Edge if it lets you switch your browser to it I'll leave a link below to a game.
+https://microsoftedge.microsoft.com/addons/detail/slope-unblocked-game/ndcokkmfmiaecmndbpohaogmpmchfpkk?hl=cy-GB 
 
 Face Reveal AstroZzx
 ![image](https://github.com/AstroZzx/ScienceQuizGames./assets/149184220/8c6537a4-a3c2-4281-811d-24a7bec47362)
