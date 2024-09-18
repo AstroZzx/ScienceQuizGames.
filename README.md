@@ -129,6 +129,8 @@ https://www.mathnook.com/fungames/categories/arcade.html
 Games
 https://linktr.ee/classroom.x7.games
 
+Proxy
+https://holyubofficial.net/
 
 
 It may not work on your computer/Chromebook but you can download games to Microsoft Edge if it lets you switch your browser to it I'll leave a link below to a game.
