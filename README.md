@@ -132,6 +132,15 @@ https://linktr.ee/classroom.x7.games
 Proxy
 https://holyubofficial.net/
 
+Proxy
+https://surfdoge.pro/
+
+Proxy
+https://lunarsync.smartfoloo.space/
+
+Proxy (Follow Download Instructions)
+https://github.com/dinguschan-owo/dingusproxy
+
 
 It may not work on your computer/Chromebook but you can download games to Microsoft Edge if it lets you switch your browser to it I'll leave a link below to a game.
 
