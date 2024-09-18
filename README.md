@@ -138,6 +138,9 @@ https://surfdoge.pro/
 Proxy
 https://lunarsync.smartfoloo.space/
 
+Proxy
+https://quq67t-5173.csb.app/
+
 Proxy (Follow Download Instructions)
 https://github.com/dinguschan-owo/dingusproxy
 
