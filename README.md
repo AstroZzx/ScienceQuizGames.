@@ -155,5 +155,3 @@ It may not work on your computer/Chromebook but you can download games to Micros
 
 https://microsoftedge.microsoft.com/addons/detail/slope-unblocked-game/ndcokkmfmiaecmndbpohaogmpmchfpkk?hl=cy-GB 
 
-Face Reveal AstroZzx
-![image](https://github.com/AstroZzx/ScienceQuizGames./assets/149184220/8c6537a4-a3c2-4281-811d-24a7bec47362)
