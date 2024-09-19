@@ -119,7 +119,7 @@ A glitchy proxy
 https://www.locabrowser.com/
 
 Games
-https://unblocked-games.s3.amazonaws.com/moto-x3m.html
+https://unblocked-games.s3.amazonaws.com/moto-x3m.html (you can click off of moto x3m)
 
 Games
 https://wordle2.io/moto-x3m-unblocked (you can click off of moto x3m)
