@@ -115,8 +115,7 @@ I cleaned the list up and added a few things.
 Slope unblocked with other games
 https://slopeio.org/ 
 
-Selenite-games-apps-bookmarklets
-https://kennysgames.on.fleek.co/
+
 
 A glitchy proxy
 https://www.locabrowser.com/
